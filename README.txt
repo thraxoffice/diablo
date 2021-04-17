@@ -1,0 +1,1 @@
+Bu botun sahibi Ŧг๏รtץ#0001 dir.İzinsiz herhangi bir yerde kullanılması yasaktır!
